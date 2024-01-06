@@ -1,17 +1,24 @@
 
 roblox user: ohfreak123/Phulix
 
-i play honkai star rail, Honkai Impact, Genshin Impact, Danganronpa, fate grand order and persona 5!
+i play honkai star rail, Genshin Impact, Danganronpa, fate grand order, persona 5, yttd!
 
-entp 7w6 726 
+entp 7w6 726 // half intj 6w5 
 
-I'm an ambivert but my most dominant one is being an extrovert. If I'm quiet, dry, its just because I just want some lone time. But, c+h are fine too!! I love cuddling with strangers ;w;
-I'm always busy but chronically online! heh, most of the time im only active for 5 hours- sorry if ur my friend 😔
+if your wondering why i sometimes add to my 'about me' on discord my mbti or the type i go with is intj 6w7 because i kind off changed, just dont be sentimental about that ,,
 
-FYI. Ehh... sometimes I'm kinda insulting, my humor is mostly- sometimes "dark" (lmao im not trying to be 'sigma') its just too funny in the situation right!!?? plus im somewhat immature but, if i get srs that means smth is wrong:3 Soo just to sum it up: my jokes are mostly abt in games, (aka sexualising them and criticize their appearance) IF YOU DONT LIKE THAT PLS DNI BUT DONT BLOCK ME!!!🥺
+*! PONY TOWN INTERACTION;;
+
+int if ; your my friend or willing to be friends, hsr, fgo, yttd, danganronpa, genshin duh, BIGBANG THEORY FANN, BREAKING BAD FAN / BETTER CALL SAUL PLZ, ennead fan, tgcf fan, ks fan, jjba, danganronpa and if you ship:
+zhongchi/chizhong,kavehtham/haikaveh,kavehnilou,alhaicyno/cynohai,cynari/thighnaricyno,kaeyachilde,albedoxiao,xiaother, wriolette,niloudehya,barbfishl,chongbennette,huxiao,sampard,samptasha,jingren,jingloucha,louchablade,dancae,sampcae,sampwelt, louchawelt,jingwelt,marchstelle, soudagudham, polavdol, advodolpol
+
+dni : antis that make the ship looks like from satan (mostly kaeluc antis), weirdo aniweeabo (no offence), people who are on non verbal // its annoying to me sorry// straight shipper who sexualize the girl (stop bffr),hates rare pairs (like ITS JUST A SHIP??) people who are sensitive w/o a good logical reason, blackwasher/whitewasher people that are mean (if your gonna promote washing while being judgemental, rude and comparing yours to others just shut up your making it unvalid.) "yamete kudasai, ara-ara~" jokes are corny obvs dni and ghosted
+
+KIN LIST : freminet, kaveh, alhaitham, cyno (for the jokes),heizou, kaeya, yae miko, furina, scaradouche, lyney, sampo, welt, venti, yelan, itto, dainslef, ruan mei, silver wolf, loucha,aeon aha, trailblazer, jimmy "saul goodman" mcgill, walter white, gustavo fring, howard wolowitz, rajesh koothrapphali, Beverley Hofstadter, Bernadette Rostenkowski, kokichi, nagito, gudham, souda, shuichi, monokuma, junko enoshiba, byakuya, kyoko, celest, fuyuhiko, ibuki, kakyoin, josuke(first) but i think first, gyro, jhonny joestar, rissotto, bruno, rohan, enrico pucci, FFF, diego brando, dio brando, ceasar's grandpapa, ringo roadagain (im gay),iggy, alien bro from jjba, boingo and etc cuz i forgot
 
 
-I always use my Sampo cos or Sampo X Better Call Saul (in ponytown) and my new-est cosplays!! and also, please, roleplayers dni... I'm bad at roleplaying. I CHANGED MY STYLE, PLEASE FORGET MY SAMPO COSPLAY, I NOW ALWAYS USE MY KAVEH/TIGHNARI/CYNO CHARACTERS <333
+FYI. im a minor,, (not interested in dating) and im from the Philippines so if your speaking tagalog its fine for me. im always at the safe server, sometimes if im bored i go to safe server russian and 18+ servers so it will be fun!! im KIND OFF a math dyslexic person or just autistic and bipolar.. yes, i randomly get energy for some reasons and im always afk in game (all types of games) but if you private mssg me / whisper i'll reply immediately. im also a little bit of incest enjoyer however, i dont show my fav ships publicly,, i can control myself. c+h are okay w me if ur my friend or sm who ships ____ w ____, i respect ALL ships but i base it on the people who ships it. im a half writer and artist if im in the mood to do my hobbies. people describe me (if not close) nice n yet loud person while ppl that r close to me thinks im an argumentive n quiet n nosy person... bwahahaha,,
+
 
 Socials ~
 
