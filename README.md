@@ -3,7 +3,7 @@ roblox user: ohfreak123/Phulix
 
 i play honkai star rail, Genshin Impact, Danganronpa, fate grand order, persona 5, yttd!
 
-entp 7w6 726 // half intj 6w5 
+entp 7w6 726 // half intj 6w7
 
 if your wondering why i sometimes add to my 'about me' on discord my mbti or the type i go with is intj 6w7 because i kind off changed, just dont be sentimental about that ,,
 
