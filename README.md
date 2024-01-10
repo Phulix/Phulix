@@ -10,7 +10,7 @@ if your wondering why i sometimes add to my 'about me' on discord my mbti or the
 *! PONY TOWN INTERACTION;;
 
 int if ; your my friend or willing to be friends, hsr, fgo, yttd, danganronpa, genshin duh, BIGBANG THEORY FANN, BREAKING BAD FAN / BETTER CALL SAUL PLZ, ennead fan, tgcf fan, ks fan, jjba, danganronpa and if you ship:
-zhongchi/chizhong,kavehtham/haikaveh,kavehnilou,alhaicyno/cynohai,cynari/thighnaricyno,kaeyachilde,albedoxiao,xiaother,wriolette,niloudehya,barbfishl,chongbennette,huxiao,sampard,samptasha,jingren,jingloucha,louchablade,dancae,sampcae,sampwelt, louchawelt,jingwelt,marchstelle, soudagudham, polavdol, advodolpol
+zhongchi/chizhong,kavehtham/haikaveh,kavehnilou,alhaicyno/cynohai,cynari/thighnaricyno, kavehmouche,scarahaitham,kaeyachilde,albedoxiao,xiaother,wriolette,niloudehya,barbfishl,chongbennette,huxiao,sampard,samptasha,jingren,jingloucha,louchablade,dancae,sampcae,sampwelt, louchawelt,jingwelt,marchstelle, soudagudham, polavdol, advodolpol
 
 dni : antis that make the ship looks like from satan (mostly kaeluc antis), weirdo aniweeabo (no offence), people who are on non verbal // its annoying to me sorry// straight shipper who sexualize the girl (stop bffr),hates rare pairs (like ITS JUST A SHIP??) people who are sensitive w/o a good logical reason, blackwasher/whitewasher people that are mean (if your gonna promote washing while being judgemental, rude and comparing yours to others just shut up your making it unvalid.) "yamete kudasai, ara-ara~" jokes are corny obvs dni and ghosted
 
