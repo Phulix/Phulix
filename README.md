@@ -33,7 +33,7 @@ int if ;
 
 dni if; 
             
-            - antis that make the ship looks like from satan (mostly kaeluc antis) 
+            - antis that make the ship looks like from satan (mostly kaeluc & zhongchi antis) 
             
             - weirdo aniweeabo (no offence) 
             
