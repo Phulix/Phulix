@@ -3,7 +3,7 @@
 
 KAI SATOU SHOPPING LIST!! (rentry >_<)
 
-entp 7w6 726 // half intj 6w7
+entp 7w6 726 // half intj 6w5
 if your wondering why i sometimes add to my 'about me' on discord my mbti or the type i go with is intj 6w7 because there are no dominant/main mbti (according to different sites abt mbti(s) tests)
 
 int if ; 
