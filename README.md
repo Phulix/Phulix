@@ -2,4 +2,4 @@
 
 entp 7w6 726 // half intj 6w5
 
-check my strawberry pages tnx :>>
+check my strawpages tnx :>>
