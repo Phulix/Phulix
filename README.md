@@ -4,7 +4,7 @@
 
 ![kavehtham](https://64.media.tumblr.com/afce8eeee014cc6129539c00f826379f/070a31771de71680-57/s540x810/6e38981530b90a1342e627703ea4176545fd0ee3.pnj)
 
-˙✧˖°-༘⋆｡˚… ***im always there where the sun don't shine.*** ˙✧˖°-༘⋆｡˚…
+˙✧˖°-༘⋆｡˚… ***so if you need to be mean, br mean to me. -mitski (I don't smoke)*** ˙✧˖°-༘⋆｡˚…
              
 ***entp 7w6 - He/Him - bisexual***
 
