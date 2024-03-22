@@ -9,5 +9,5 @@
 ***entp 7w6 - He/Him - bisexual***
 
 
-˙✧˖°-༘⋆｡˚… **"int please i don't mind :3 // check my strawpages first though!"** ˙✧˖°-༘⋆｡˚…
+˙✧˖°-༘⋆｡˚… **"int please i don't mind :3 // check my renty first though!"** ˙✧˖°-༘⋆｡˚…
 ![curl](https://64.media.tumblr.com/0e7254ab4ff1d89f1f2988a5ff6521ad/070a31771de71680-72/s540x810/c6008c7b724020342dc0b1b41aabf0e7f54939ac.pnj)
